@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ki-Lua
+- 👋 Hi, I’m Ridho
 - 👀 I’m interested in crypto word
 - 🌱 I’m currently learning in grape academy
 - 💞️ I’m looking to collaborate on design / ambassador
